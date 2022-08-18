@@ -8,5 +8,5 @@ Sou uma pessoa muito boa,sincera,tranquila mas,as vezes não tenho muita pacienc
 Odeio Educação Física mas, porem sou obrigada a fazer essa aula.
 Moro bem no interior no meio do mato,
 Trabalho na roça em tempos de safra,
-quando não estou trabalhando,venho para o colégio estudar e conversar.
+quando não estou trabalhando venho para o colégio estudar e conversar.
 
